@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @wer3Ppop
+v- 👋 Hi, I’m @wer3Ppop
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...ssdfsdf
-- 📫 How to reach me ...562132xb
+- 📫 How to reach me ...562132xbrr
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...sfd444
 
