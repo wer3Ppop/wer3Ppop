@@ -3,7 +3,7 @@ v- 👋 Hi, I’m @wer3Ppop
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...ssdfsdf45423666
 - 📫 How to reach me ...562132xbrr52
-- 😄 Pronouns: ...78bgg
+- 😄 Pronouns: ...78bgg4744
 - ⚡ Fun fact: ...sfd44487783gee54
 fdssd
 <!---jl456asdgjllm.lm45
