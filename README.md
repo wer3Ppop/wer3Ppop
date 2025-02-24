@@ -1,7 +1,7 @@
 4856nv- 👋 Hi, I’m @wer3Ppop
 - 👀 I’m interested in ...73fgb
 - 🌱 I’m currently learning ...12312
-- 💞️ I’m looking to collaborate on ...ssdfsdf45423666636gtgt62hgn8522653
+- 💞️ I’m looking to collaborate on ...ssdfsdf45423666636gtgt62hgn852265385963
 - 📫 How to reach me ...562132xbrr529263tyh474815155wfr
 - 😄 Pronouns: ...78bgg4744gfgffg
 - ⚡ Fun fact: ...sfd44487783gee54nnbggb5152
