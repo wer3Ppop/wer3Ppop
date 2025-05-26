@@ -3,7 +3,7 @@ yikhjghghnnghsssjgcvvc4856nv- 👋 Hi, I’m @wer3Ppopffhgf
 - 🌱 I’m currently learning ...12312859+
 - 💞️ I’m looking to collaborate on ...ssdfsdf45423666636gtgt62hgn852265385963dssdsdf354454xcvcx89987jghvdfdvfdfdfvd
 - 📫 How to reach me ...562132xbrr529263tyh474815155wfrre1,nnxcvvcxfwehgjcvdgfgewrwebgfgfbscdsssdgfddgbfdfdfffd96296
-- 😄 Pronouns: ...78bgg4744gfgffgghjhjghjgjgbfgfgf066226cvb
+- 😄 Pronouns: ...78bgg4744gfgffgghjhjghjgjgbfgfgf066226cvbfjghg
 - ⚡ Fun fact: ...sfd44487783gee54nnbggb5152hgnhgxcvvcx6hhnhnhxxxxszxxxtgrhfggfcvb
 8559hyttt26958656cvbdgfdgcvcbcbc
 <!---jl456asdgjllm.lm45596969142vvvcvb
